@@ -1,4 +1,4 @@
-### Hi there 👋
+Kesalahan terburuk kita adalah tertariknya kita pada kesalahan orang lain. ~ Ali Bin Abi Thalib RA
 
 <!--
 **rusdyahmad/rusdyahmad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
